@@ -1,1 +1,1 @@
-
+Primeira Sprint m1, blog kenzie
